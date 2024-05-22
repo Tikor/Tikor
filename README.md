@@ -3,5 +3,3 @@ I'm interested in active lifestyle, engineering, technology & personal growth.<b
 I love mountains, cats & new challenges.
 
 Currently looking for collaboration on various commercial projects.<br/>📫 If You feel interested, You can contact me via e-mail: ceglinski.piotr@gmail.com
-
-Living adventure... since always 😎🏔
